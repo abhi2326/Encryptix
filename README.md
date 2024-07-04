@@ -1,2 +1,1 @@
-# Encryptix
-Encryptrix Internship
+HEEYYYY!! WELCOME TO PREDATOR'S PLAYGROUND
